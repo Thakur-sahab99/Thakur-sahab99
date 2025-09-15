@@ -1,4 +1,4 @@
-# 🚀 Gourav Thakur
+# Gourav Thakur
 
 **AI/ML Prompt Engineer** | **B.Tech Biotechnology Graduate** | **Kolkata, India**
 
